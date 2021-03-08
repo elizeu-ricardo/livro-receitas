@@ -2,3 +2,4 @@
 
 - Uma colher de sal (sopa)
 - Uma colher de Óleo (sopa)
+- 1Kg de frango sem osso
